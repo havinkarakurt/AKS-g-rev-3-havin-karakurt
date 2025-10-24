@@ -1,0 +1,1 @@
+# AKS-g-rev-3-havin-karakurt
